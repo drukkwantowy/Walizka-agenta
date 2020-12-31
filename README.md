@@ -4,4 +4,6 @@ To walizka laptop do robienia falami radiowymi ostatecznej śmierci bez samolotu
 -Bąba anty materii 
 -Czarna dziura na planetę która nam zagraża
 -Wysadzenie gwiazdy dającej życie
--Kwantowa utylizacja duszy i ciała DNA.
+-Kwantowa utylizacja duszy i ciała DNA
+-Radiowe zatrucie i przejęcie kontroli nad mózgiem zatrucie i kontrola mózgu
+-Generator cyfrowy broni klasycznej w schowku cyfrowym.
